@@ -1,5 +1,5 @@
 
-<p align="center"> <img src="https://64.media.tumblr.com/78dddf4a74132974f98327e56f08da4d/5e0ee0d65d49b4fd-1d/s100x200/f3b0007d063dc5de2c293a8954ec41c2347ee099.gifv">
+<p align="center"> <img src="https://anarchist.nekoweb.org/github/4b1ba136-b9cf-418a-b59f-181a5631c902.png">
 <p align="center"> I am will | he/they </p>
 <div align="center">
 <p align="center"> <img src="https://64.media.tumblr.com/6c9132e493e07e7f6bb73d57e5767d35/6816e9c8958207e3-a7/s100x200/5b8fbaabbae17ba3f8975400ed205e30dd03f863.gifv"> <img src="https://64.media.tumblr.com/fa9ef9055f09fce4c6851dae681d741b/6816e9c8958207e3-e4/s100x200/3a2aecc205fe2b858c080bdf158af07bab746307.pnj"> <img src="https://64.media.tumblr.com/6d0f71453a665296f7d10ad361c91824/676e28688f4bed68-40/s100x200/5e772755f1113781f35795742f2085e85fb86515.pnj">
@@ -15,5 +15,5 @@
     
 <div align="center">
 
-[atabook](https://creatinealibi.atabook.org/) [spotify](https://open.spotify.com/user/jpvlfgki8gceiwspgysnctta8)
+[atabook](https://creatinealibi.atabook.org/) [spotify](https://open.spotify.com/user/jpvlfgki8gceiwspgysnctta8) [important resources](https://rentry.co/anarchistresources)
 
