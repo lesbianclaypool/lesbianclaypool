@@ -15,5 +15,4 @@
     
 <div align="center">
 
-[atabook](https://creatinealibi.atabook.org/) [spotify](https://open.spotify.com/user/jpvlfgki8gceiwspgysnctta8) [important resources](https://rentry.co/anarchistresources)
-
+[atabook](https://creatinealibi.atabook.org/) [spotify](https://open.spotify.com/user/jpvlfgki8gceiwspgysnctta8)
